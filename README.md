@@ -14,6 +14,8 @@ Incluye documentos sobre:
 ![image](https://github.com/anita1201/ENTREGA_M1_TYH2/assets/103151225/aeeeecec-68bc-423d-918e-9995010103c9)
 ![image](https://github.com/anita1201/ENTREGA_M1_TYH2/assets/103151225/beb90db6-1646-4183-b60e-3e66e1b3bd65)
 
+5. Informe sobre Charla DISTROCUYO 
+
 
 
 
